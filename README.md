@@ -1,1 +1,1 @@
-# AyurGynam
+# AyurGyanam
